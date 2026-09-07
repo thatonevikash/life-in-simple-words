@@ -30,6 +30,7 @@
 
 ---
 
+
 6. **Your brain is a super computer**
     - Update it's software
         - Books
@@ -47,5 +48,9 @@
 ---
 
 7. **Accept every situation with a smile.**
+
+---
+
+8. **You don't need a reason to smile**
 
 ---
