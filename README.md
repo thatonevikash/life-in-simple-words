@@ -54,3 +54,5 @@
 8. **You don't need a reason to smile**
 
 ---
+
+9. **Happiness lives inside don't rely on outside sources.**
