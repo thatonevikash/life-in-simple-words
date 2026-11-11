@@ -56,3 +56,7 @@
 ---
 
 9. **Happiness lives inside don't rely on outside sources.**
+
+---
+
+10. **Success asks for sacrifice** not everyone can close the deal.
