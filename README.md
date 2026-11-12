@@ -60,3 +60,7 @@
 ---
 
 10. **Success asks for sacrifice** not everyone can close the deal.
+
+---
+
+11. **Life is so unpredictable**
